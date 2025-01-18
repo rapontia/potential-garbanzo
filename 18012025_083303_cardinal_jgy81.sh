@@ -1,0 +1,1 @@
+In the summer of 1858, the smell of the sewage in the Thames River in London was so bad that the Members of Parliament had to leave from the chamber of the House of Commons. This was a result of two million people dumping all their sewage into the river
